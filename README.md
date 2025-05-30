@@ -1,0 +1,1 @@
+# Google-Trends-Zaman-Serisi-Analizi-AI-Tahmini
